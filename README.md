@@ -1,2 +1,2 @@
 - 👋 Hi, I’m Sergey
-Telegram: @TimchenkoSA 
+- Telegram: @TimchenkoSA 
